@@ -18,7 +18,7 @@ Aqui no GitHub, compartilho projetos práticos desenvolvidos ao longo da minha f
 - Git e GitHub
 
 ### 📬 Contato:
-- ✉️ denyse.vessio@gmail.com  
+- ✉️ denyse.vessio@yahoo.com.br 
 - 💼 [LinkedIn](https://www.linkedin.com/in/denysevessio)
 
 Obrigada pela visita!
